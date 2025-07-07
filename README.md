@@ -11,4 +11,4 @@
 
 日本AV免费资源平台为你带来了高清、丰富的视频内容。平台设计清晰，用户可以轻松找到自己喜欢的影片。无论是最新上传的影片还是经典的热门影片，都能在平台上找到。每部影片都配有详细的描述和高清播放选项，保证你在观看时体验流畅无阻。平台还提供评论和评分功能，让用户可以分享自己的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250707/haha9 ）</span>
